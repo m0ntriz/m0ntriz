@@ -1,1 +1,1 @@
-ଲ( ⓛ ω ⓛ *)ଲ
+<img src=cat.gif>
